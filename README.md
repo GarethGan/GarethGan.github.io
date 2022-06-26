@@ -1,1 +1,2 @@
-# Lei Gan's Personal Profile (in progress...)
+# Lei Gan's Personal Website
+in progress...
